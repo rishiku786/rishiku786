@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rishav Kumar
-**A passionate Sodtware Engineer || Web Developer**
+**A passionate Software Engineer || Web Developer**
 
 Email Me 👉 ✉️ **rishiku751860@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 

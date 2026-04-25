@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **rishiku751860@gmail.com** For Collaboration/Project or An
 - 🤔 **I’m looking for help with:**  DSA problem solving strategies and AI/ML concepts
 - 💬 **Ask me about:** Frontend/UI Design, Collaboration, Tech Support
 - 📫 **How to reach me:** rishiku751860@gmail.com
-- 😄 **Pronouns:** Rishav Kumar
+- 😄 **Pronouns:** he/him
 - ⚡ **Fun fact:**  I am not lazy, I am just in energy-saving mode ⚡😴
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/therishi6117) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/rishav-kumar-1b9a07350) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:rishiku751860@gmail.com) 
